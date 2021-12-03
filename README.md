@@ -1,37 +1,7 @@
-## Welcome to GitHub Pages
-
-You can use the [editor on GitHub](https://github.com/GoldenApple2001/Hello-World/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
-
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
-
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/GoldenApple2001/Hello-World/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+# John Eaton
+## Who am I?
+With more than 4 years of video production experience in total, John also has equal experience on the other side of the camera as well as an actor and musician.
+Focused on the business & finance aspects of production, John will complete his Assoicates of Arts degree and continue his studies at Towson University in the Spring of 2022.
+His team's short film on the negative impacts of drug-use won the "Most Inspiring" award at the Howard County Film Festival in 2018.
+John is also very skilled in mastering songs and is studying mixing and sound design on the side.
+He has several different songs already written and recorded, but only 2 of them are fully released to the public as of now.
