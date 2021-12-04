@@ -17,3 +17,18 @@ You can find it here at https://www.youtube.com/watch?v=d_k7i6_j3Xo&list=OLAK5uy
 ## Written in May of 2021 and was recorded just 2 weeks later after hearing a friend record a song using the same beat. I loved it so much that I coulnd't just sit there and let it go, I had to write something to it even though it was already in use.
 It ended up gaining attention pretty quickly and surpassed 10K listeners on SoundCloud just within the first week alone.
 You can find it here at https://www.youtube.com/watch?v=a0zHEoEp8Uo&list=OLAK5uy_kda_qljFsqYNkSe5QHOPjqiwkUnP3BfPo
+
+# Contact
+If you ever wanted to collaborate on something and work on a project together, you can always just easily hit me up on ANY social media site that has ever existed in the history of the world
+OR, you can reach me by phone number @ 240-565-3766
+My email is john.eaton2@howardcc.edu
+I look forward to hearing from you all! :)
+
+# Social Media
+## Snapchat/Instagram/Facebook/LinkedIn/TikTok/Twitter
+Add me on Snapchat @ goldenboy_701
+Follow me on Instagram @ LS_Finesse
+Friend me on Facebook @ JJ Eaton
+Add me on LinkedIn @ John Eaton
+Follow me on TikTok @ LS_Finesse
+Follow me on Twitter @ LS_Finesse
