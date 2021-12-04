@@ -14,7 +14,7 @@ This song was recently played live on iHeartRadio after somebody submitted it an
 You can find it here at https://www.youtube.com/watch?v=d_k7i6_j3Xo&list=OLAK5uy_mFRNDVRK1Fr_FSXP8r8Jse70xR5X99vlU
 
 # "Off Track" 
-## Written in May of 2021 and was recorded just 2 weeks later after hearing a friend record a song using the same beat. I loved it so much that I coulnd't just sit there and let it go, I had to write something to it even though it was already in use.
+## Written in May of 2021 and was recorded just 2 weeks later after hearing a friend record a song using the same beat. I loved it so much that I couldn't just sit there and let it go, I had to write something to it even though it was already in use.
 It ended up gaining attention pretty quickly and surpassed 10K listeners on SoundCloud just within the first week alone.
 You can find it here at https://www.youtube.com/watch?v=a0zHEoEp8Uo&list=OLAK5uy_kda_qljFsqYNkSe5QHOPjqiwkUnP3BfPo
 
