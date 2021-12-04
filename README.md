@@ -21,14 +21,21 @@ You can find it here at https://www.youtube.com/watch?v=a0zHEoEp8Uo&list=OLAK5uy
 # Contact
 If you ever wanted to collaborate on something and work on a project together, you can always just easily hit me up on ANY social media site that has ever existed in the history of the world
 OR, you can reach me by phone number @ 240-565-3766
+
 My email is john.eaton2@howardcc.edu
+
 I look forward to hearing from you all! :)
 
 # Social Media
 ## Snapchat/Instagram/Facebook/LinkedIn/TikTok/Twitter
 Add me on Snapchat @ goldenboy_701
+
 Follow me on Instagram @ LS_Finesse
+
 Friend me on Facebook @ JJ Eaton
+
 Add me on LinkedIn @ John Eaton
+
 Follow me on TikTok @ LS_Finesse
+
 Follow me on Twitter @ LS_Finesse
