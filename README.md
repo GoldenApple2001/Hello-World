@@ -1,4 +1,4 @@
-# Portfolio
+# John Eaton
 ## Who am I?
 With more than 4 years of video production experience in total, John also has equal experience on the other side of the camera as well as an actor and musician.
 Focused on the business & finance aspects of production, John will complete his Assoicates of Arts degree and continue his studies at Towson University in the Spring of 2022.
